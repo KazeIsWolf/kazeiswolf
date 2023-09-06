@@ -10,7 +10,7 @@ Im Used To RP a lot, and I like to hear a good story, I like minimalistic things
 For Now Im Developing World Exception, A Game About A Multiverse i Created
 ![Untitled 07-21-2023 12-56-01](https://github.com/RedNinjaBR/worldexception/assets/68024071/9210ee82-1027-4fef-adc7-22b4bd94fa85#gh-dark-mode-only)
 
-If U Wanna Play It Or Wanna Help Testing it [There it Is](https://redninjabr.github.io/worldexception/main)
+If U Wanna Play It Or Wanna Help Testing it [There it Is](https://redninjabr.github.io/worldexception)
 
 
 I Create My Stories On [Wattpad](https://www.wattpad.com/user/RedNinjaBR), Most On Portuguese, But I Have English Too
