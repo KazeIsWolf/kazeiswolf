@@ -11,3 +11,12 @@ For Now Im Developing World Exception, A Game About A Multiverse i Created
 ![Untitled 07-21-2023 12-56-01](https://github.com/RedNinjaBR/worldexception/assets/68024071/9210ee82-1027-4fef-adc7-22b4bd94fa85#gh-dark-mode-only)
 
 If U Wanna Play It Or Wanna Help Testing it [There it Is](https://redninjabr.github.io/worldexception/main)
+
+
+I Create My Stories On [Wattpad](https://www.wattpad.com/user/RedNinjaBR), Most On Portuguese, But I Have English Too
+
+I Play [Roblox](https://www.roblox.com/users/155761294/profile) in Free Times
+
+And One Day I Will Update My [Youtube](https://www.youtube.com/@redninjabr) With New Videos
+
+If U Wanna See When I come Back to Stream See My [Twitch](https://www.twitch.tv/redninjabrl)
