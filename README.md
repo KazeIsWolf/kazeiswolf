@@ -20,3 +20,9 @@ I Play [Roblox](https://www.roblox.com/users/155761294/profile) in Free Times
 And One Day I Will Update My [Youtube](https://www.youtube.com/@redninjabr) With New Videos
 
 If U Wanna See When I come Back to Stream See My [Twitch](https://www.twitch.tv/redninjabrl)
+
+If U Wanna See My Other Public Games See My [Itch.io](https://redninjabr.itch.io/) And My [Gamejolt](https://gamejolt.com/@RedNinjaBR)
+
+I Use [GDevelop 5](https://gdevelop.io/) To Develop My Games Today, But i was used to Make Them on Construct 2
+
+Enter In My [Discord Server](https://discord.gg./6hQGbHPJBQ) to Ask Anything
